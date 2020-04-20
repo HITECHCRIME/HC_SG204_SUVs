@@ -37,7 +37,8 @@ we got red, they are bulls
 coped out, shades up on them suits
 roll out, gotta getem while we move, 
 dropped the spike
-call the tech they hide behind
+call the tech they hide behind 
+the truth defiant
 
 there are rules of war they do not ignore
 
