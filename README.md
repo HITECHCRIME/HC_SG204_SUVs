@@ -38,17 +38,19 @@ coped out, shades up on them suits
 roll out, gotta getem while we move, 
 dropped the spike
 call the tech they hide behind 
+
 the truth defiant
+there are rules of war 
+they do not ignore
+stealthy entity I adore
 
-there are rules of war they do not ignore
-
- / stealthy entity in all down masks
+in all down masks
 before dawn, fix em good enough
 till the wave of death turns around
 abandon all (normal) the rules
 edge of shadows, 
 rolling through the kingdom of hate
-make them pay
+make them pay with gallows
 
 ```
 
