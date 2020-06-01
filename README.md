@@ -21,9 +21,38 @@ https://www.beatstars.com/beat/4442388
 ## Lyrics
 
 ```
-
 "We got a transport coming"
 "Aye, on it, get ready"
+
+these are blacked out SUVs 
+inna top deck brutes
+stealthy men in masks all down
+tracers rolling through the urbs
+
+black death dressed in suits
+i got eyes, they got goods
+i got fire, they are null
+we got red, they are bulls
+
+coped out, shades up on them suits
+roll out, gotta getem while we move 
+dropped the spike
+call the tech they hide behind 
+
+the truth defiant
+there are rules of war 
+they do not ignore
+stealthy entity, a moment I adore
+
+in all down masks bring em
+before dawn, fix em good enough
+till the wave of death turns around
+
+abandon all (normal) the rules ???
+edge of shadows rolling through the kingdom of hate ???
+make them pay with gallows ???
+
+----
 
 these are blacked out SUVs in a top tech brutes / top deck brutes
 stealthy men in masks all down
