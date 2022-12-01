@@ -22,7 +22,7 @@ https://www.beatstars.com/beat/4442388
 
 ```
 "We got a transport coming"
-"Aye, on it, get ready"
+"Aye, on it, get ready" / eye on him, get ready
 
 these are blacked out SUVs 
 inna top deck brutes
