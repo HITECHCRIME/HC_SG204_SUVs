@@ -48,7 +48,7 @@ stealthy entity, (in) moment I adore (in moment of asore - mankind)
 
 in all down masks bring em
 before dawn, fix em good enough
-till the wave (way) of death turns around
+till the(ir) wave (way) of death turns around
 
 abandon all (normal) the rules ???
 edge of shadows rolling through the kingdom of hate ???
