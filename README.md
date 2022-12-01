@@ -42,7 +42,7 @@ call the tech they hide behind
 the truth defiant
 there are rules of war 
 they do not ignore
-stealthy entity, a moment I adore
+stealthy entity, (in) a moment I adore
 
 in all down masks bring em
 before dawn, fix em good enough
