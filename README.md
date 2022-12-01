@@ -42,7 +42,7 @@ call the tech they hide behind
 the truth defiant
 there are rules of war 
 they do not ignore
-stealthy entity, (in) a moment I adore (in a moment of asore - mankind)
+stealthy entity, (in) moment I adore (in moment of asore - mankind)
 
 --- You have the capacity to change the world for the better and be remembered as a great person.
 
